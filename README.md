@@ -6,6 +6,6 @@ Hi there 👋
 - 🤔 I’m looking for help with any organisation
 - 💬 Ask me about basket ball
 - 📫 How to reach me: mildredatieno981@gmail.com
-- 😄 Pronouns: she,her
-- - ⚡ Fun fact: dead men tell no tales
+- 😄 Pronouns: she/her
+- - ⚡ Fun fact: Dead men tell no tales
 
